@@ -7,5 +7,4 @@ Silahkan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Tia Pelisa, [LinkedIn](https://www.linkedin.com/in/tia-pelisa-8609b4258).
 
